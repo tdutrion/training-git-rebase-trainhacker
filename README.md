@@ -25,3 +25,6 @@ So let's imagine I own that land, and I'm ready to start bbuilding my house.
 The land is on whatever lane, whatever city in whatever country. This might be quite important for the actions to come!
 
 Right, you know how the weather is in whatever city... So I'm starting building my home using straw, but the wind has blown everything off.
+
+Then I tried sticks, it's wood, so should be alright, innit? In order to do that, I had to cut some trees, and as everybody knows, cutting trees is probably one of the cause of global warming...
+Anyhow, because of that previous thing, I received a fireball right next to my house, buring everything down, no luck again right?
