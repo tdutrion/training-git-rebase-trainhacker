@@ -15,3 +15,11 @@ so your messages are not so clean now, and you're book is getting unreadable, wh
 Lucky me! While I'm mourning as any compassionate human would do, I'm inheriting from my grandparents. This means I now own a land I needed for my house, and I'll be able to start building soon enough!
 
 What best way to use the land as a souvenir than building my own home right on it? Convenient, isn't it?
+
+## Chapter 1: building my house
+
+I have a pretty good idea of how to build my house. The spared money I have should be more than enough, and gratefully, I'm now the prowd owner of a land I can build on.
+
+So let's imagine I own that land, and I'm ready to start bbuilding my house.
+
+The land is on whatever lane, whatever city in whatever country. This might be quite important for the actions to come!
