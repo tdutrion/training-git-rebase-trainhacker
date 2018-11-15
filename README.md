@@ -28,3 +28,5 @@ Right, you know how the weather is in whatever city... So I'm starting building 
 
 Then I tried sticks, it's wood, so should be alright, innit? In order to do that, I had to cut some trees, and as everybody knows, cutting trees is probably one of the cause of global warming...
 Anyhow, because of that previous thing, I received a fireball right next to my house, buring everything down, no luck again right?
+
+I finally settled for something solid (yeah right, just as the solid principles... you engineers always love a good laugh do you?).
