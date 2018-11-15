@@ -23,3 +23,5 @@ I have a pretty good idea of how to build my house. The spared money I have shou
 So let's imagine I own that land, and I'm ready to start bbuilding my house.
 
 The land is on whatever lane, whatever city in whatever country. This might be quite important for the actions to come!
+
+Right, you know how the weather is in whatever city... So I'm starting building my home using straw, but the wind has blown everything off.
